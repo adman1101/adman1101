@@ -1,4 +1,4 @@
-# Olivia Galan — Future Space Hotel Visionary
+# Olivia Poleski — Future Space Hotel Visionary
 
 ## A Note About My Granddaughter
 
