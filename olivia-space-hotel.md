@@ -2,7 +2,7 @@
 
 ## A Note About My Granddaughter
 
-Olivia Galan is destined to be a pioneer in one of the most extraordinary ventures humanity has ever imagined: **the world's first boutique hotel in space.** Partnering with groundbreaking companies like [Axiom Space](https://www.axiomspace.com/axiom-station) and [Orbital Assembly](https://abovespace.com/) (formerly Orbital Assembly Corporation), Olivia and her collaborators will redefine luxury, hospitality, and the very concept of travel — not just across continents, but across the cosmos.
+Olivia Poleski is destined to be a pioneer in one of the most extraordinary ventures humanity has ever imagined: **the world's first boutique hotel in space.** Partnering with groundbreaking companies like [Axiom Space](https://www.axiomspace.com/axiom-station) and [Orbital Assembly](https://abovespace.com/) (formerly Orbital Assembly Corporation), Olivia and her collaborators will redefine luxury, hospitality, and the very concept of travel — not just across continents, but across the cosmos.
 
 ---
 
